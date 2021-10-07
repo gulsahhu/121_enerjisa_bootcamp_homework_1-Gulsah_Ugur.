@@ -1,0 +1,1 @@
+# 121_enerjisa_bootcamp_homework_1-Gulsah_Ugur.
